@@ -9,3 +9,7 @@ ximvadim.github.io
 adobe Animate-https://yadi.sk/d/wzkB1GT7-l_-Dw
 
 Adobe Premiere Pro-https://yadi.sk/d/xvnwyNRuEENu5A
+
+Adobe Muse-https://yadi.sk/d/GzwIo-sxyMEijg
+
+Adobe Photoshop-https://yadi.sk/d/Fl519GkmI3Fq_Q
