@@ -4,3 +4,8 @@ ximvadim.github.io
 
 
 раздел полезные приложения
+
+
+adobe Animate-https://yadi.sk/d/wzkB1GT7-l_-Dw
+
+Adobe Premiere Pro-https://yadi.sk/d/xvnwyNRuEENu5A
